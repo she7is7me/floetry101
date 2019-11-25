@@ -1,0 +1,2 @@
+# floetry101
+The pain from life traumas with sharing and caring support systems and creating something beautifully poetic and honest to help the healing and brighten the darkest pain into art and writing of poetry and also creating real freinds with all people because of the Art  its miraculous without exp;oiting anyone truths just being your most beautiful person you want to be and making freind and confidants or just being able to shine and rise up from the pain of yesterday and living in color today so you can be your best self tomorow.......FLOETRY baby FLOETRY  
